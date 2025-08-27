@@ -13,8 +13,8 @@
 ### 🌍 Language Practice Schedule
 - **🇨🇳 Chinese**: Monday & Thursday  
 - **🇺🇸 English**: Tuesday & Friday  
-- **🇯🇵 Japanese**: Wednesday & Saturday
-
+- **🇯🇵 Japanese**: Wednesday & Saturday  
+*to be continued...*  
 ---
 
 ### 🏃‍♀️ Life Management System
