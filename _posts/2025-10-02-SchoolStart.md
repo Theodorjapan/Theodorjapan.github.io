@@ -1,6 +1,8 @@
 ---  
 tags: Life
 ---  
+# School start 
+
 ### 1. Morning 
  I arrived at the Master‘s Room at 9:30, as part of my routine (what I do every morning). I turned on the air conditioner and put my lunch box into the refrigerator. While the water was boiling,I went to the lavatory and then made tea, after that, I turned on my desktop, checked the email, wrote a to-do list for the day, and started my work. Although I slept poorly last night because I encountered the X account of a senior at Kyoto university, I ended up researching that bitch professor’s news and information until midnight. I still got up early ,around 7 a.m. today, took a shower, and had breakfast with my girlfriend. I am proud of myself.
 
